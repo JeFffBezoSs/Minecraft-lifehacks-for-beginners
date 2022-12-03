@@ -1,2 +1,2 @@
-# Minecraft-lifehacks-for-beginners
-Today i will tell you 6 minecraft tips for beginners
+# Random stuff lmao💀☠️
+The tilte explains it all.
