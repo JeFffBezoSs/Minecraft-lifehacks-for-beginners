@@ -1,2 +1,2 @@
 # Random stuff lmao💀☠️
-The title explains it all.
+The title explains it all.💀
