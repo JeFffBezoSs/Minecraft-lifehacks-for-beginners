@@ -1,2 +1,2 @@
 # Random stuff lmao💀☠️
-The tilte explains it all.
+The title explains it all.
